@@ -24,7 +24,5 @@
   - [Techniques for Overcoming Language, Communication, and Cultural Barriers](chapter-6-2.md)
   - [Tips for Making a Good Impression in Chinese Business Settings](chapter-6-3.md)
 - [Appendix](chapter-7.md)
-  - [Glossary of Key Terms](chapter-7-1.md)
-  - [Recommended Resources for Further Study](chapter-7-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
