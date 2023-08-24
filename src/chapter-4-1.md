@@ -1,5 +1,3 @@
-Overview of the Chinese Economy and Market
-====================================================================================
 
 Navigating the Chinese market can be challenging, particularly for non-native speakers. Understanding the Chinese economy and market is critical to succeeding in this dynamic environment.
 

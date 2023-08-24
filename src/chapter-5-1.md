@@ -1,5 +1,3 @@
-Strategies for Effective Communication in Chinese Business Meetings
-==================================================================================================================================
 
 Effective communication is essential for conducting successful business meetings in Chinese. As a non-native speaker, it's important to be clear, concise, and culturally sensitive in your language and tone.
 

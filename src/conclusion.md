@@ -1,4 +1,3 @@
-# Conclusion
 
 Navigating the Chinese market and conducting successful business deals requires an understanding of Chinese business culture and language. In this book, we've covered key points and techniques for doing business in China.
 

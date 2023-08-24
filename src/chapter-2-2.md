@@ -1,5 +1,3 @@
-Common Chinese Business Practices and Traditions
-=======================================================================================================
 
 In addition to understanding the etiquette of Chinese business culture, it's important to be aware of common practices and traditions in order to conduct successful business deals in China. This chapter will provide an overview of some of these practices and traditions.
 

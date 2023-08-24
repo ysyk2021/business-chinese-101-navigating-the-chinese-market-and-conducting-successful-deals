@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Chinese Business Culture
-=====================================================
 
 Chinese business culture is complex and steeped in traditions and customs. In this chapter, we will provide an overview of key aspects of Chinese business culture, including etiquette rules to follow, common practices and traditions, and tips for building strong relationships with Chinese business partners.
 

@@ -1,5 +1,3 @@
-Tips for Making a Good Impression in Chinese Business Settings
-=====================================================================================================================
 
 When doing business in China, making a good impression is essential for building successful business relationships. In this subchapter, we will provide some tips for demonstrating respect for Chinese culture and customs in a business setting.
 

@@ -1,4 +1,3 @@
-# Introduction
 
 With the rise of China in the global economy, learning how to conduct business effectively in China has become a crucial skill for professionals in various industries. However, doing business in China can be challenging, especially for those unfamiliar with Chinese culture, language, and business practices.
 

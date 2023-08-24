@@ -1,5 +1,3 @@
-Techniques for Delivering Presentations and Negotiating Deals in Mandarin
-========================================================================================================================================
 
 In this chapter, we will discuss techniques for delivering presentations and negotiating deals in Mandarin to conduct successful business meetings.
 

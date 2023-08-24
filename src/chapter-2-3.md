@@ -1,5 +1,3 @@
-Tips for Building Strong Relationships with Chinese Business Partners
-============================================================================================================================
 
 Building strong relationships with Chinese business partners is crucial for success in the Chinese market. In addition to understanding the etiquette and practices of Chinese business culture, there are several tips for developing strong relationships with Chinese counterparts. This chapter will provide an overview of some of these tips.
 

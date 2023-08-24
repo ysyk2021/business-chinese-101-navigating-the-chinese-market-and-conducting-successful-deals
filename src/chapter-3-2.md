@@ -1,5 +1,3 @@
-Common Idioms and Expressions Used in Chinese Business Culture
-===============================================================================================================================
 
 In addition to basic vocabulary and phrases, understanding common idioms and expressions is essential when conducting business in China. These expressions reflect Chinese cultural values and are often used to convey a deeper meaning beyond the literal translation. In this chapter, we will introduce you to some of the most commonly used idioms and expressions in Chinese business culture.
 

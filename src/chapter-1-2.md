@@ -1,5 +1,3 @@
-Overview of the Book's Approach to Business Chinese
-=================================================================
 
 Welcome to "Business Chinese 101: Navigating the Chinese Market and Conducting Successful Deals." This book is designed for anyone looking to do business in China, whether they are seasoned professionals or newcomers to the Chinese market. Our approach to teaching Business Chinese focuses on language, culture, and practical skills necessary for successful negotiations and deal-making in China.
 

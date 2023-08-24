@@ -1,5 +1,3 @@
-Common Cultural Misunderstandings Between Western and Chinese Business Cultures
-======================================================================================================================================
 
 When doing business in China, it's essential to be aware of the cultural differences that can arise between Western and Chinese business cultures. In this subchapter, we will explore some common cultural misunderstandings and how to avoid them.
 

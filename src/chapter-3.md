@@ -1,5 +1,3 @@
-Chapter 2: Essential Business Vocabulary and Phrases in Chinese
-===============================================================
 
 In this chapter, we will discuss key vocabulary and phrases that are essential for basic business communication in Mandarin Chinese.
 

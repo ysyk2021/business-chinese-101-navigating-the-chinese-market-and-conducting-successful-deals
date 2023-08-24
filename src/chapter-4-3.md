@@ -1,5 +1,3 @@
-Techniques for Finding and Evaluating Business Opportunities
-======================================================================================================
 
 Expanding your business into China can be a lucrative opportunity, but it requires a thorough understanding of the local market. This chapter will cover techniques for finding and evaluating business opportunities in China.
 

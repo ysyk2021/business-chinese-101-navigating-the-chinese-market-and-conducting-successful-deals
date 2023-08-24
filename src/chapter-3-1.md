@@ -1,5 +1,3 @@
-Key Vocabulary and Phrases for Basic Business Communication in Chinese
-=======================================================================================================================================
 
 As a business professional working in China or with Chinese partners, it is essential to have a basic understanding of Mandarin Chinese. In addition to cultural knowledge, mastering key vocabulary and phrases for basic business communication can help you establish strong relationships and conduct successful deals. In this chapter, we will introduce you to some essential business vocabulary and phrases in Mandarin Chinese.
 

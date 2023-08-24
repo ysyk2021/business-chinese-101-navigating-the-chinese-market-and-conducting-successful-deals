@@ -1,5 +1,3 @@
-Tips for Preparing and Reviewing Business Documents in Chinese
-=============================================================================================================================
 
 In this chapter, we will discuss tips for preparing and reviewing business documents in Chinese to conduct successful business meetings.
 

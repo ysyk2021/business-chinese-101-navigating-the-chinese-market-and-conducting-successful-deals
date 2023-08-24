@@ -1,5 +1,3 @@
-Tips for Pronunciation and Tone
-================================================================================================
 
 Learning new vocabulary and phrases is an important step in mastering a foreign language, and Mandarin Chinese is no exception. However, in addition to memorizing words and phrases, it is crucial to understand how to pronounce them correctly and use the appropriate tone. In this chapter, we will provide you with some tips for improving your pronunciation and tone when using essential business vocabulary and phrases in Mandarin Chinese.
 

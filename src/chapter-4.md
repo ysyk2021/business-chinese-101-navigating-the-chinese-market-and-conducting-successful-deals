@@ -1,5 +1,3 @@
-Chapter 3: Navigating the Chinese Market
-========================================
 
 Navigating the Chinese market can be a complex and challenging task, particularly for foreign businesses. However, with the right knowledge and strategies, it is possible to achieve success in this dynamic marketplace.
 

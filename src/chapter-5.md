@@ -1,5 +1,3 @@
-Chapter 4: Conducting Successful Business Meetings in Chinese
-=============================================================
 
 Conducting business meetings in Chinese requires effective communication and negotiation skills. In this chapter, we will cover strategies for effective communication, techniques for delivering presentations and negotiating deals in Mandarin, and tips for preparing and reviewing business documents in Chinese.
 

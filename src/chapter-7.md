@@ -1,5 +1,3 @@
-Appendix
-========
 
 Glossary of Key Terms
 ---------------------
@@ -41,7 +39,6 @@ list more glossary:
 * **Yīnwèi (因为)** - Refers to the Chinese word for "because." Understanding basic Chinese grammar, including the use of yīnwèi, is essential for effective communication in business dealings.
 
 We hope this glossary serves as a helpful reference as you continue your studies in Chinese business culture and language.
-
 
 Recommended Resources for Further Study
 ---------------------------------------

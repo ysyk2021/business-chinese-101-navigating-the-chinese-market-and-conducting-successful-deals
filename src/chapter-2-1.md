@@ -1,5 +1,3 @@
-Overview of Chinese Business Culture and Etiquette
-=========================================================================================================
 
 When conducting business in China, it's important to have a solid understanding of Chinese business culture and etiquette. In this chapter, we will provide an overview of Chinese business culture, including key customs and etiquette to keep in mind.
 
