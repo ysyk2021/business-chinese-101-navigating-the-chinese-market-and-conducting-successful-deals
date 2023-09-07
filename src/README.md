@@ -6,3 +6,7 @@ Business Chinese 101: Navigating the Chinese Market and Conducting Successful De
 Whether you are an experienced business professional or a newcomer to the Chinese market, Business Chinese 101: Navigating the Chinese Market and Conducting Successful Deals is an indispensable guidebook for achieving success in your Chinese business endeavors. With its comprehensive coverage, practical advice, and cultural insights, this book will equip you with the knowledge and skills you need to thrive in China's dynamic and rapidly evolving business landscape.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
