@@ -1,5 +1,4 @@
-Chapter 11: Common Idioms and Expressions Used in Chinese Business Culture
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding common idioms and expressions used in Chinese business culture can significantly enhance your ability to communicate effectively and build relationships when navigating the Chinese market and conducting successful deals. In this chapter, we will explore a selection of commonly used idioms and expressions in business contexts.
 

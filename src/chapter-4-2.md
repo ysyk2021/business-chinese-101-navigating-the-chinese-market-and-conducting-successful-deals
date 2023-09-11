@@ -1,5 +1,4 @@
-Chapter 10: Analysis of Key Industries and Sectors in China
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an in-depth analysis of some of the key industries and sectors that play a pivotal role in the Chinese market. Understanding the dynamics, trends, and opportunities in these sectors is essential for business professionals looking to navigate and conduct successful deals in China.
 

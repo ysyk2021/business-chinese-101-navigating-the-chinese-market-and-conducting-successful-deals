@@ -1,5 +1,4 @@
-Chapter 7: Tips for Making a Good Impression in Chinese Business Settings
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore invaluable tips and strategies to ensure that you make a lasting and positive impression when conducting business in China. Creating a favorable impression is fundamental to building strong relationships and achieving success in the Chinese market.
 

@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Delivering Presentations and Negotiating Deals in Mandarin
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delivering presentations and negotiating deals in Mandarin requires a distinct set of skills and strategies to succeed in the Chinese market. In this chapter, we will explore key techniques and best practices for effectively communicating and persuading in Mandarin.
 

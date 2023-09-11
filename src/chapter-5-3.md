@@ -1,5 +1,4 @@
-Chapter 8: Tips for Preparing and Reviewing Business Documents in Chinese
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication through written documents is vital when navigating the Chinese market and conducting successful business deals. In this chapter, we will explore key tips and best practices for preparing and reviewing business documents in Chinese.
 

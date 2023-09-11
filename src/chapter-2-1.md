@@ -1,5 +1,4 @@
-Chapter 3: Overview of Chinese Business Culture and Etiquette
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fundamental aspects of Chinese business culture and etiquette. Understanding these cultural norms and practices is essential for successfully navigating the Chinese market and conducting fruitful business deals.
 

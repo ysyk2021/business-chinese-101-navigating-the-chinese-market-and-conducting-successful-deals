@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Finding and Evaluating Business Opportunities
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential techniques and strategies for identifying and assessing business opportunities in the Chinese market. Successfully finding and evaluating opportunities is fundamental to conducting successful deals and thriving in the dynamic business landscape of China.
 

@@ -1,5 +1,4 @@
-Chapter 10: Tips for Pronunciation and Tone in Business Chinese
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mastering pronunciation and tone in Business Chinese is essential for effective communication and building trust in the Chinese market. In this chapter, we will explore key tips and strategies to improve your Chinese pronunciation and tone.
 

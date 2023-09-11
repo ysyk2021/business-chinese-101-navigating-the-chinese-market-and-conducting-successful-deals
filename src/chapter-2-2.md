@@ -1,5 +1,4 @@
-Chapter 7: Common Chinese Business Practices and Traditions
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding common Chinese business practices and traditions is essential for successfully navigating the Chinese market and conducting fruitful business deals. In this chapter, we will explore key customs and practices that are integral to Chinese business culture.
 

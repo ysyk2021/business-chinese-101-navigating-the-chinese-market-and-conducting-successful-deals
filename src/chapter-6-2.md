@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Overcoming Language, Communication, and Cultural Barriers
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into essential techniques and strategies for navigating the complexities of language, communication, and cultural barriers when conducting business in China. Successfully bridging these gaps is pivotal for building trust, forming partnerships, and conducting prosperous deals in the Chinese market.
 

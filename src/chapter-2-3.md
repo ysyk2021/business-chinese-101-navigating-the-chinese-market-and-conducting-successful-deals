@@ -1,5 +1,4 @@
-Chapter 6: Tips for Building Strong Relationships with Chinese Business Partners
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building strong and lasting relationships with Chinese business partners is fundamental to success in the Chinese market. In this chapter, we will explore key tips and strategies for cultivating meaningful connections with your Chinese counterparts.
 

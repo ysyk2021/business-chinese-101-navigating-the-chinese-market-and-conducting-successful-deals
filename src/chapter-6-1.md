@@ -1,5 +1,4 @@
-Chapter 8: Common Cultural Misunderstandings Between Western and Chinese Business Cultures
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore some of the most common cultural misunderstandings that often arise between Western and Chinese business cultures. Understanding and addressing these misunderstandings is crucial for building successful business relationships and conducting smooth deals in the Chinese market.
 

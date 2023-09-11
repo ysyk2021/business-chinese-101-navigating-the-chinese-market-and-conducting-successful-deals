@@ -1,5 +1,4 @@
-Chapter 12: Key Vocabulary and Phrases for Basic Business Communication in Chinese
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is crucial when navigating the Chinese market and conducting successful deals. This chapter provides a selection of key vocabulary and phrases that are essential for basic business communication in Chinese. Familiarizing yourself with these terms and expressions will help you build relationships, negotiate deals, and conduct business transactions with confidence.
 
